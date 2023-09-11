@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @disconnect.wtf
+- 👀 I’m interested in coding and cheating
+- 🌱 I’m currently learning how to code and make cheats
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me discord user is:west#6227
